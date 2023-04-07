@@ -8,6 +8,9 @@ author: You
 
 # Building protection against fire
 
+[Bdmeter][(https://bdmeter.info/2023/01/08/combating-human-trafficking-forced-labor/)](https://bdmeter.info/2023/01/25/building-protection-against-fire/)
+
+
 There are two distinct aspects of building fire protection: life safety and property protection. Although providing for one aspect generally results in some protection for the other, the two goals are not mutually inclusive. A program that provides for prompt notification and evacuation of occupants meets the objectives for life safety but provides no protection for the property. Conversely, it is possible that adequate building protection might not be sufficient for the protection of life.
 
 Absolute safety from fire is not attainable. It is not possible to eliminate all combustible materials or all potential ignition sources. Thus, in most cases, an adequate fire protection plan must assume that unwanted fires will occur despite the best efforts to prevent them. Means must be provided to minimize the losses caused by the fires that do occur.
