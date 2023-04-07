@@ -1,5 +1,5 @@
 ---
-title:Combating human trafficking and forced labor
+title: Combating human trafficking and forced labor
 date: 2021/3/18
 description: Combating human trafficking and forced labor.
 tag: human trafficking
