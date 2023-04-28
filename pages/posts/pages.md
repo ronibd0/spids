@@ -17,9 +17,8 @@ Upwork only offers benefits those who has a very good background in Upwork. They
 ### What is Review/Rating?
 Reviw and Rating is most importand in Upwork platform for new job hunters. Because Upwork only count real customers statement and most real rating. If Upwork bot can detect you are a fake client, they never help this things to grow your profile. 
 
-
+### What we do?
 We are a smart organization to buld up your carieer in Upwork and we are giving to promise to get jobs easily than ever in those platform. We will provide you most developed tools sets and learning path to make you more skill and strong communication skills. Our learning path makes your carieer shiny in Upwork platform. We garuanteed 100% successful rate to get hired. 
 
 #### Contact us
-
 [Send message in Telegram](https://t.me/spids/)
