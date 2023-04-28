@@ -14,5 +14,5 @@ World is suffering lack of skilled workers and remote skilled workers. Today we 
 
 Upwork only offers benefits those who has a very good background in Upwork. They count very few things to get hired thru this platfrom. Those remmote jobbers have very good rating and review in their first job and second job and third job, they will have 99% possibilities to get hired most of cases. According to our research, Upwork only count real jobs and this will count real jobs rating from customers. There are very few things to identify real customers and Upwork use worl most talented bot to identify real customrs. So, this is pretty tough to get hired first second and third time in Upwork and get very good rating review there. 
 
-### WHAT IS Review/Rating?
+### What is Review/Rating?
 Reviw and Rating is most importand in Upwork platform for new job hunters. Because Upwork only count real customers statement and most real rating. If Upwork bot can detect you are a fake client, they never help this things to grow your profile. 
