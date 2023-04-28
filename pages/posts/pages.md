@@ -22,4 +22,4 @@ We are a smart organization to buld up your carieer in Upwork and we are giving 
 
 #### Contact us
 
-[Telegram text](https://t.me/spids/)
+[Send message in Telegram](https://t.me/spids/)
