@@ -8,6 +8,9 @@ author: Freelancer.com
 
 ## Rating and Review in Freelancer.com
 
+![Freelancer.com](https://www.f-cdn.com/assets/img/facebook/default-04d56222.jpg)
+
+
 ### How to start your first move in freelancer?
 
 Do you want to build your carieer as a successful freelancer? It's not so easy and hard like win Atlantic. You must need a real approved freelancer account first. Once your profile approved, thus you need to pay freelancer and you need credit cards to pay online and to approve your payment methods they will take a fixed ampount and cross check with your bank to verify it's really you!
@@ -20,4 +23,6 @@ We are a smart organization to buld up your carieer in freelancer.com and we are
 
 
 #### Contact us
+[Contact in Skype](https://skype.me/live:.cid.512f6984b6daaa09) 
+
 [Send message in Telegram](https://t.me/spids/)
